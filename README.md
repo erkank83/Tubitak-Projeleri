@@ -1,0 +1,1 @@
+# Tubitak-2020-Zirvedeki-puanlar-buluyorum
